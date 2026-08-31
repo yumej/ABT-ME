@@ -1,3 +1,6 @@
+<!-- ![](https://komarev.com/ghpvc/?username=yumej&color=c7a130)
+-->
+
 <div align="right">
   
 <img width="200" height="200" alt="204" src="https://64.media.tumblr.com/59dc1374fe660032c9e91b334b2cd35d/8b2562b8d930aed5-cd/s100x200/6f809a1d9b21c4d4c5fb3dcc506b2ea0fb84fc0e.gifv" />
