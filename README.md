@@ -37,6 +37,15 @@ decided to make a lil github bc i have fomo lol
 
 not really talkative ! !    but if i see a skin i like ill say something c:
 
+<img width="150" height="20" alt="iced-sugar-cookies" src="https://64.media.tumblr.com/fb5bd342bc8789ac0ee5f7943d7bcb50/025e0c59e2aee257-fe/s100x200/18d56b4ee4d3da723c6d8d17a8bec4643d328363.pnj" />
+<img width="150" height="20" alt="got-sparkle-i-do" src="https://64.media.tumblr.com/257db078a1aebc3423f5011483ad2fd5/230dd2f4729b9121-5c/s100x200/18cf04d5c548c606f0ed18d7122a6858e1b27c9c.gifv" />
+<img width="150" height="20" alt="i-support-fluff-n-stuff" src="https://64.media.tumblr.com/55011d1c41020eee4837064e8f946084/230dd2f4729b9121-a7/s100x200/e34e20b31ef345054e04d4b637dd2e5fc8d3b440.gifv" />
+<img width="149" height="20" alt="rave-on" src="https://64.media.tumblr.com/04e47c2159f957a8f551a489294e0a0e/230dd2f4729b9121-2d/s100x200/c6722a43b8bb8826858a02fca670c20394d6dbd3.gifv" />
+<img width="149" height="20" alt="just-keep-on-pusheen" src="https://64.media.tumblr.com/76f72b39ff97381ad9e08768babca3c2/c178604c9f05ab47-dc/s250x400/18c1b17e84ce26471b86258e26e11999eddd83a2.pnj" />
+<img width="149" height="20" alt="sanrio-kitties" src="https://64.media.tumblr.com/f43b3970167452b75e1b01d8c0245d43/c21d3b284830abeb-ce/s250x400/9a49e1a8c217781c09bab8f0708a0bb2e0093fe2.pnj" />
+<img width="149" height="20" alt="mlg-kitty" src="[https://64.media.tumblr.com/04e47c2159f957a8f551a489294e0a0e/230dd2f4729b9121-2d/s100x200/c6722a43b8bb8826858a02fca670c20394d6dbd3.gifv](https://64.media.tumblr.com/1d1fe0e7f259035d04b4f2e3f1ea3d88/05029cdcef8b6d59-21/s250x400/332b4aa56649d707b75287e3a4e23b049738b162.pnj)" />
+<img width="149" height="20" alt="ILOVEMEN" src="https://64.media.tumblr.com/4a62447e57af181052938975ffbd1d0d/bfe484ba56a93f86-10/s100x200/700902a6c5a3b95a5372111199a66250a93c4c35.gifv" />
+
 `fandoms` : mlp , rick & morty , tboi , berserk , buddy daddies , ddlc , school-live! , squid-game , mouthwashing, happy tree friends , gachiakuta , sally face & more prob
 
 erm ya thats it ^.^
@@ -56,10 +65,7 @@ erm ya thats it ^.^
 <img width="150" height="20" alt="i-want-cake" src="https://64.media.tumblr.com/a28aa6c04047af4c698bebb4cea9195a/025e0c59e2aee257-ec/s250x400/ab278891436584cc8ee5dff714a9ecd8cb7b14d5.gifv" />
 <img width="150" height="20" alt="hi-cookie-fans" src="https://64.media.tumblr.com/2f631ff19a17955c00fc53a62cf163b5/b3fd1a30ee84379f-82/s250x400/b25f263d1a401e6030cd570ca3b8e87c297a6fa0.gifv" />
 <img width="150" height="20" alt="i-love-unicorn-bear" src="https://64.media.tumblr.com/c5a652bb5dde376d42b52daf93d5be06/f1481f574677825e-f7/s250x400/2d6598622c655d0677bb23e7b240c104de09cd10.gifv" />
-<img width="150" height="20" alt="iced-sugar-cookies" src="https://64.media.tumblr.com/fb5bd342bc8789ac0ee5f7943d7bcb50/025e0c59e2aee257-fe/s100x200/18d56b4ee4d3da723c6d8d17a8bec4643d328363.pnj" />
-<img width="150" height="20" alt="got-sparkle-i-do" src="https://64.media.tumblr.com/257db078a1aebc3423f5011483ad2fd5/230dd2f4729b9121-5c/s100x200/18cf04d5c548c606f0ed18d7122a6858e1b27c9c.gifv" />
-<img width="150" height="20" alt="i-support-fluff-n-stuff" src="https://64.media.tumblr.com/55011d1c41020eee4837064e8f946084/230dd2f4729b9121-a7/s100x200/e34e20b31ef345054e04d4b637dd2e5fc8d3b440.gifv" />
-<img width="149" height="20" alt="rave-on" src="https://64.media.tumblr.com/04e47c2159f957a8f551a489294e0a0e/230dd2f4729b9121-2d/s100x200/c6722a43b8bb8826858a02fca670c20394d6dbd3.gifv" />
+
 <img width="150" height="20" alt="moviestarplanet" src="https://64.media.tumblr.com/24e2745fbf85b2c2cc29a8de977da284/9eb06495f8f9f32f-b2/s250x400/4925040db2dcad64d3fffb5e116325a090963701.gifv" />
 <img width="150" height="20" alt="big-shot" src="https://github.com/user-attachments/assets/35f137f4-b1b8-4818-ab47-0dbaf69e8461" />
 <img width="150" height="20" alt="i-love-music" src="https://github.com/user-attachments/assets/2ed9f0d0-b11c-4f0d-90cb-a0ac24c85e2d" />
