@@ -41,6 +41,8 @@ not really talkative ! !    but if i see a skin i like ill say something c:
 
 erm ya thats it ^.^
 
+<img width="700" height="90" alt="cupcakes-twinklin" src="https://64.media.tumblr.com/2236e21d94c82634280847886773c5b9/025e0c59e2aee257-e5/s500x750/a739cbd3d25d3df40f6afca793b17296db976925.gifv" />
+
 <!--that triangle guy didn't pay me a penny for his ad, DON'T LISTEN TO HIM!!!-->
 
 <br>
@@ -50,15 +52,15 @@ erm ya thats it ^.^
 
 
 
-<img width="150" height="20" alt="paranoidsurvive" src="https://github.com/user-attachments/assets/beef097f-2a7b-447c-af89-5086b054408f" />
-<img width="150" height="20" alt="stargazer" src="https://github.com/user-attachments/assets/dbea4a91-534c-4932-a7b7-766053c581ad" />
-<img width="150" height="20" alt="y31" src="https://github.com/user-attachments/assets/ceea1f51-9fed-446c-8c3d-0be43f34fbc1" />
-<img width="150" height="20" alt="e71" src="https://github.com/user-attachments/assets/767cb422-ad28-4c37-8854-4d85c3c96742" />
-<img width="150" height="20" alt="y44" src="https://github.com/user-attachments/assets/d359c957-2b64-4e7d-98cf-dc7a7cf3d868" />
-<img width="150" height="20" alt="v20" src="https://github.com/user-attachments/assets/f37f15bf-eee6-46bd-93f3-278c33672032" />
-<img width="150" height="20" alt="broken" src="https://github.com/user-attachments/assets/c88b1745-a203-48c3-8e55-95db14a8a90d" />
-<img width="149" height="20" alt="in case i make it" src="https://github.com/user-attachments/assets/9dbf238e-605b-40aa-9f37-3ad1b8398aab" />
-<img width="150" height="20" alt="my little pony" src="https://github.com/user-attachments/assets/b47bebf8-e04d-496f-88ff-7e2b19e96137" />
+<img width="150" height="20" alt="sweet-like-candy" src="https://64.media.tumblr.com/aaa74ba6416c9dae4b0e86481e8bd43f/025e0c59e2aee257-58/s250x400/e40bc1d0cf1a1e43380daeb0d485c7d3aef13735.gifv" />
+<img width="150" height="20" alt="i-want-cake" src="https://64.media.tumblr.com/a28aa6c04047af4c698bebb4cea9195a/025e0c59e2aee257-ec/s250x400/ab278891436584cc8ee5dff714a9ecd8cb7b14d5.gifv" />
+<img width="150" height="20" alt="hi-cookie-fans" src="https://64.media.tumblr.com/2f631ff19a17955c00fc53a62cf163b5/b3fd1a30ee84379f-82/s250x400/b25f263d1a401e6030cd570ca3b8e87c297a6fa0.gifv" />
+<img width="150" height="20" alt="i-love-unicorn-bear" src="https://64.media.tumblr.com/c5a652bb5dde376d42b52daf93d5be06/f1481f574677825e-f7/s250x400/2d6598622c655d0677bb23e7b240c104de09cd10.gifv" />
+<img width="150" height="20" alt="iced-sugar-cookies" src="https://64.media.tumblr.com/fb5bd342bc8789ac0ee5f7943d7bcb50/025e0c59e2aee257-fe/s100x200/18d56b4ee4d3da723c6d8d17a8bec4643d328363.pnj" />
+<img width="150" height="20" alt="got-sparkle-i-do" src="https://64.media.tumblr.com/257db078a1aebc3423f5011483ad2fd5/230dd2f4729b9121-5c/s100x200/18cf04d5c548c606f0ed18d7122a6858e1b27c9c.gifv" />
+<img width="150" height="20" alt="i-support-fluff-n-stuff" src="https://64.media.tumblr.com/55011d1c41020eee4837064e8f946084/230dd2f4729b9121-a7/s100x200/e34e20b31ef345054e04d4b637dd2e5fc8d3b440.gifv" />
+<img width="149" height="20" alt="rave-on" src="https://64.media.tumblr.com/04e47c2159f957a8f551a489294e0a0e/230dd2f4729b9121-2d/s100x200/c6722a43b8bb8826858a02fca670c20394d6dbd3.gifv" />
+<img width="150" height="20" alt="moviestarplanet" src="https://64.media.tumblr.com/24e2745fbf85b2c2cc29a8de977da284/9eb06495f8f9f32f-b2/s250x400/4925040db2dcad64d3fffb5e116325a090963701.gifv" />
 <img width="150" height="20" alt="big-shot" src="https://github.com/user-attachments/assets/35f137f4-b1b8-4818-ab47-0dbaf69e8461" />
 <img width="150" height="20" alt="i-love-music" src="https://github.com/user-attachments/assets/2ed9f0d0-b11c-4f0d-90cb-a0ac24c85e2d" />
 <img width="150" height="20" alt="rocks" src="https://github.com/user-attachments/assets/5cc3e275-e0b9-4f7d-be83-6dcf90066dec" />
