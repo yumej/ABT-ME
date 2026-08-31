@@ -13,6 +13,8 @@
 
 # ୨ৎ YUMEJ (yoom-jay) / *CAKEY* `^.^`
 
+<img width="100" height="100" alt="204" src="https://64.media.tumblr.com/444463d1979d8611b3c6a2e389c8e5cd/dba9224c52af69c4-fa/s100x200/5b16f32a0d6fc124874ddedcd079b85e312ab48f.gifv" />
+
 decided to make a lil github bc i have fomo lol
 
 ⤷ **I AM BLACK** .ᐟ.ᐟ (adding this bc when i say the n-word ppl automatically assume im a white bigot cus apparently black ppl dont play pt or smthing idk)
@@ -81,7 +83,7 @@ erm ya thats it ^.^ ill add more ifi feel like it
 <br>
 <br>
 
-<img width="800" height="100" alt="FAGGOT-SWAGGER" src="https://64.media.tumblr.com/b9964cb2a8afe37f3552248d9f7576e6/5d31124cf9e14779-a1/s250x400/bc3ea81a03b5eeb116af1a96914c3ad1b8e64e97.gifv" />
+<img width="400" height="40" alt="FAGGOT-SWAGGER" src="https://64.media.tumblr.com/b9964cb2a8afe37f3552248d9f7576e6/5d31124cf9e14779-a1/s250x400/bc3ea81a03b5eeb116af1a96914c3ad1b8e64e97.gifv" />
 
 
 
