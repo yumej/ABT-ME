@@ -49,20 +49,6 @@ im vry forgetful so if i forget who u r mb U_U <img width="15" height="15" alt="
 
 erm ya thats it ^.^ ill add more ifi feel like it
 
-
-<img width="100" height="100" alt="super-morty-fan" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortySuperMortyFanDown_1.png" />
-<img width="100" height="100" alt="stray-cat-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyCrazyCatDown_1.png" />
-<img width="100" height="100" alt="unicorn-chaser-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyUnicornChaserDown_1.png" />
-<img width="100" height="100" alt="morticia" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyMorticiaDown_1.png" />
-<img width="100" height="100" alt="dog-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyDogDown_1.png" />
-<img width="100" height="100" alt="pancake-mort" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyPancakeDown_1.png" />
-<img width="100" height="100" alt="bunny-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyRabbitDown_1.png" />
-
-
-<br>
-<br>
-<br>
-
 <img width="700" height="90" alt="cupcakes-twinklin" src="https://64.media.tumblr.com/2236e21d94c82634280847886773c5b9/025e0c59e2aee257-e5/s500x750/a739cbd3d25d3df40f6afca793b17296db976925.gifv" />
 
 <!--that triangle guy didn't pay me a penny for his ad, DON'T LISTEN TO HIM!!!-->
@@ -73,6 +59,16 @@ erm ya thats it ^.^ ill add more ifi feel like it
 <br>
 
 
+<img width="100" height="100" alt="super-morty-fan" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortySuperMortyFanDown_1.png" />
+<img width="100" height="100" alt="stray-cat-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyCrazyCatDown_1.png" />
+<img width="100" height="100" alt="unicorn-chaser-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyUnicornChaserDown_1.png" />
+<img width="100" height="100" alt="morticia" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyMorticiaDown_1.png" />
+<img width="100" height="100" alt="dog-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyDogDown_1.png" />
+<img width="100" height="100" alt="pancake-mort" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyPancakeDown_1.png" />
+<img width="100" height="100" alt="bunny-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyRabbitDown_1.png" />
+
+<br>
+<br>
 
 <img width="150" height="20" alt="sweet-like-candy" src="https://64.media.tumblr.com/aaa74ba6416c9dae4b0e86481e8bd43f/025e0c59e2aee257-58/s250x400/e40bc1d0cf1a1e43380daeb0d485c7d3aef13735.gifv" />
 <img width="150" height="20" alt="i-want-cake" src="https://64.media.tumblr.com/a28aa6c04047af4c698bebb4cea9195a/025e0c59e2aee257-ec/s250x400/ab278891436584cc8ee5dff714a9ecd8cb7b14d5.gifv" />
