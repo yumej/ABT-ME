@@ -71,6 +71,12 @@ erm ya thats it ^.^ ill add more ifi feel like it
 <img width="150" height="20" alt="fleshwater" src="https://64.media.tumblr.com/c62c6181688d50e6c3520c9958965e1a/15c45838f4da92f9-c5/s250x400/4aa6601b70bc0de4170315d9cbb0c87cb07f110a.webp" />
 <img width="150" height="20" alt="i-got-top-surgery-at-claires" src="https://64.media.tumblr.com/1b0812705e1fbf585a884ef4dd2e16ac/789386645e410a1e-ab/s250x400/d522fb41625ba7f8a99dab8799cb11252b126ed8.gifv" />
 <img width="150" height="20" alt="digital-artist" src="https://64.media.tumblr.com/be9725eadff697ce400b9af5029b54d9/db6564cf1140779b-7d/s250x400/40dd5f8a4e6e086905958e811e8be35cb532ec63.gifv" />
+<img width="150" height="20" alt="i-was-uncool-before-being-uncool-was-cool" src="https://adriansblinkiecollection.neocities.org/g61.gif" />
+<img width="150" height="20" alt="best-pussy-disorder" src="https://adriansblinkiecollection.neocities.org/54.gif" />
+<img width="150" height="20" alt="beware-of-the-hamster" src="https://64.media.tumblr.com/c72f61046ba34262acdbcc3d364b518e/tumblr_inline_pgcxqsBVfX1v11djx_500.gif" />
+<img width="150" height="20" alt="i-wanna-go-home" src="https://supplies.ju.mp/assets/images/gallery08/9268cf22_original.gif?v=2e2c9a9d" />
+<img width="150" height="20" alt="cringe-but-free" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a86671af-4c32-481a-82f9-ffef10d457e1/dh04euq-b2ae34a2-db89-44b7-b8ee-6cc7a02976e4.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hODY2NzFhZi00YzMyLTQ4MWEtODJmOS1mZmVmMTBkNDU3ZTEvZGgwNGV1cS1iMmFlMzRhMi1kYjg5LTQ0YjctYjhlZS02Y2M3YTAyOTc2ZTQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.WfVJRsgpD6jLsfiNH_oAY8EBMg-9NRiFrKQannk3onw" />
+<img width="150" height="20" alt="dj-pon3-fan" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/78a6cf48-1f61-406c-bf3b-129d5f7d45ca/dce9wvo-aef80118-25b0-46aa-9d66-5514b04b1238.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi83OGE2Y2Y0OC0xZjYxLTQwNmMtYmYzYi0xMjlkNWY3ZDQ1Y2EvZGNlOXd2by1hZWY4MDExOC0yNWIwLTQ2YWEtOWQ2Ni01NTE0YjA0YjEyMzgucG5nIn1dXX0.hdfSZwZ_iH8ENKk6LTnvJMuokAf819fU_PjvOmD56w4" />
 
 <br>
 
@@ -81,14 +87,21 @@ erm ya thats it ^.^ ill add more ifi feel like it
 <img width="120" height="60" alt="fred!" src="https://wilardo.crd.co/assets/images/gallery13/d82f0d5a_original.png?v=d19c95ca" />
 <img width="120" height="60" alt="FIGHT-ON-MOB" src="https://mesoscale.neocities.org/images/stamps/fighton.gif" />
 
-<br>
-
-<img width="150" height="20" alt="i-was-uncool-before-being-uncool-was-cool" src="https://adriansblinkiecollection.neocities.org/g61.gif" />
-<img width="150" height="20" alt="best-pussy-disorder" src="https://adriansblinkiecollection.neocities.org/54.gif" />
-<img width="150" height="20" alt="beware-of-the-hamster" src="https://64.media.tumblr.com/c72f61046ba34262acdbcc3d364b518e/tumblr_inline_pgcxqsBVfX1v11djx_500.gif" />
-<img width="150" height="20" alt="i-wanna-go-home" src="https://supplies.ju.mp/assets/images/gallery08/9268cf22_original.gif?v=2e2c9a9d" />
-<img width="150" height="20" alt="cringe-but-free" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a86671af-4c32-481a-82f9-ffef10d457e1/dh04euq-b2ae34a2-db89-44b7-b8ee-6cc7a02976e4.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hODY2NzFhZi00YzMyLTQ4MWEtODJmOS1mZmVmMTBkNDU3ZTEvZGgwNGV1cS1iMmFlMzRhMi1kYjg5LTQ0YjctYjhlZS02Y2M3YTAyOTc2ZTQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.WfVJRsgpD6jLsfiNH_oAY8EBMg-9NRiFrKQannk3onw" />
-<img width="150" height="20" alt="dj-pon3-fan" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/78a6cf48-1f61-406c-bf3b-129d5f7d45ca/dce9wvo-aef80118-25b0-46aa-9d66-5514b04b1238.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi83OGE2Y2Y0OC0xZjYxLTQwNmMtYmYzYi0xMjlkNWY3ZDQ1Y2EvZGNlOXd2by1hZWY4MDExOC0yNWIwLTQ2YWEtOWQ2Ni01NTE0YjA0YjEyMzgucG5nIn1dXX0.hdfSZwZ_iH8ENKk6LTnvJMuokAf819fU_PjvOmD56w4" />
+<img width="120" height="60" alt="the-only-good-pedobear-is-a-dead-pedobear" src="https://adriansblinkiecollection.neocities.org/stamps/a77.png" />
+<img width="120" height="60" alt="i-love-cupcakes" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/6f4482da-d08d-4111-8a9c-50324f480055/d26r5sr-29eaa09b-d3d8-4641-b6a9-8f2974b69afa.jpg?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi82ZjQ0ODJkYS1kMDhkLTQxMTEtOGE5Yy01MDMyNGY0ODAwNTUvZDI2cjVzci0yOWVhYTA5Yi1kM2Q4LTQ2NDEtYjZhOS04ZjI5NzRiNjlhZmEuanBnIn1dXX0.Zsh-FNIO_lrCw-WmDECt83G7P6lt8DInO9hGxMThpig" />
+<img width="120" height="60" alt="laugh!-its-free" src="https://adriansblinkiecollection.neocities.org/stamps/a58.gif" />
+<img width="120" height="60" alt="hard-style" src="https://adriansblinkiecollection.neocities.org/stamps/d14.gif" />
+<img width="120" height="60" alt="weird-ppl-make-the-world-colourful!" src="https://adriansblinkiecollection.neocities.org/stamps/a68.png" />
+<img width="120" height="60" alt="EVERYBODY-DO-THE-FLOP" src="https://adriansblinkiecollection.neocities.org/stamps/a10.gif" />
+<img width="120" height="60" alt="I-refuse-to-grow-up!" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/c23add62-50a4-4787-b674-28dc92d70a66/dztq5c-d1cfd9b5-3db6-459d-b211-ae273097c450.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi9jMjNhZGQ2Mi01MGE0LTQ3ODctYjY3NC0yOGRjOTJkNzBhNjYvZHp0cTVjLWQxY2ZkOWI1LTNkYjYtNDU5ZC1iMjExLWFlMjczMDk3YzQ1MC5naWYifV1dfQ.QuAFZ6M0iID7v44-MPaSMLZH9hktrWb-_6t31jDfwrw" />
+<img width="120" height="60" alt="pony.mov" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/dbe21d57-20e4-4144-899d-ca9daa6b6bdc/d4qghf1-2daa60cb-9d1b-4c61-aeaf-8f5b0de45e50.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi9kYmUyMWQ1Ny0yMGU0LTQxNDQtODk5ZC1jYTlkYWE2YjZiZGMvZDRxZ2hmMS0yZGFhNjBjYi05ZDFiLTRjNjEtYWVhZi04ZjViMGRlNDVlNTAuZ2lmIn1dXX0.euFGkUAyzygkD8ijrdM8-0UsTjWQmETQ0m6BDnVR548" />
+<img width="120" height="60" alt="self-taught-idiot" src="https://adriansblinkiecollection.neocities.org/stamps/a59.png" />
+<img width="120" height="60" alt="starbutterfly" src="https://decohoard.carrd.co/assets/images/gallery57/c96bfd0e.gif?v=e0827b7e" />
+<img width="120" height="60" alt="converse" src="https://adriansblinkiecollection.neocities.org/stamps/c17.jpg" />
+<img width="120" height="60" alt="block-whover-you-want" src="https://paleking.carrd.co/assets/images/gallery10/5cd868a7.png?v26071698921061" />
+<img width="120" height="60" alt="gloomybear" src="https://nustuff.carrd.co/assets/images/gallery13/7632d852.png?v=0a15e1db" />
+<img width="120" height="60" alt="all-nazis-deserve-to-die" src="https://paleking.carrd.co/assets/images/gallery18/b9fd6d9a.png?v26071698921061" />
+<img width="120" height="60" alt="i-support-striped-tails!" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/fa573ca2-3b5c-465b-928b-0e214312801a/d3db9rg-1110fb33-c641-4bfb-a009-e9b8ef64e8b9.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9mYTU3M2NhMi0zYjVjLTQ2NWItOTI4Yi0wZTIxNDMxMjgwMWEvZDNkYjlyZy0xMTEwZmIzMy1jNjQxLTRiZmItYTAwOS1lOWI4ZWY2NGU4YjkuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.9EWiSeYpI6grmAA1eb2r3XjnTPXTrc0K7Ba7895JZzk" />
 
 
 
