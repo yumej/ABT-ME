@@ -82,6 +82,18 @@ erm ya thats it ^.^ ill add more ifi feel like it
 <img width="120" height="60" alt="FIGHT-ON-MOB" src="https://mesoscale.neocities.org/images/stamps/fighton.gif" />
 
 <br>
+
+<img width="150" height="20" alt="i-was-uncool-before-being-uncool-was-cool" src="https://adriansblinkiecollection.neocities.org/g61.gif" />
+<img width="150" height="20" alt="best-pussy-disorder" src="https://adriansblinkiecollection.neocities.org/54.gif" />
+<img width="150" height="20" alt="beware-of-the-hamster" src="https://64.media.tumblr.com/c72f61046ba34262acdbcc3d364b518e/tumblr_inline_pgcxqsBVfX1v11djx_500.gif" />
+<img width="150" height="20" alt="i-wanna-go-home" src="https://supplies.ju.mp/assets/images/gallery08/9268cf22_original.gif?v=2e2c9a9d" />
+<img width="150" height="20" alt="cringe-but-free" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a86671af-4c32-481a-82f9-ffef10d457e1/dh04euq-b2ae34a2-db89-44b7-b8ee-6cc7a02976e4.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hODY2NzFhZi00YzMyLTQ4MWEtODJmOS1mZmVmMTBkNDU3ZTEvZGgwNGV1cS1iMmFlMzRhMi1kYjg5LTQ0YjctYjhlZS02Y2M3YTAyOTc2ZTQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.WfVJRsgpD6jLsfiNH_oAY8EBMg-9NRiFrKQannk3onw" />
+<img width="150" height="20" alt="dj-pon3-fan" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/78a6cf48-1f61-406c-bf3b-129d5f7d45ca/dce9wvo-aef80118-25b0-46aa-9d66-5514b04b1238.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi83OGE2Y2Y0OC0xZjYxLTQwNmMtYmYzYi0xMjlkNWY3ZDQ1Y2EvZGNlOXd2by1hZWY4MDExOC0yNWIwLTQ2YWEtOWQ2Ni01NTE0YjA0YjEyMzgucG5nIn1dXX0.hdfSZwZ_iH8ENKk6LTnvJMuokAf819fU_PjvOmD56w4" />
+
+
+
+
+<br>
 <br>
 <br>
 <br>
