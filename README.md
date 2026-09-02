@@ -26,9 +26,16 @@ not really talkative ! !    but if i see a skin i like ill say something c:
 
 im vry forgetful so if i forget who u r mb U_U
 
+<img width="120" height="60" alt="rick-and-jerry-adventures" src="https://64.media.tumblr.com/5df03ec1f72b48daa0d331919d2b2247/bfbdc7f9f62dec41-48/s100x200/86a2356c390842221f42c88f73a86e02884f1b8a.gifv" />
+<img width="120" height="60" alt="that-was-so-unkawaii-of-you.." src="https://64.media.tumblr.com/16216181d27d78ebd86018989fc02501/09b4c71addff9337-b5/s100x200/290d3e7cdcdd10086ffb3748af5e39d2a7ef27bf.pnj" />
+<img width="120" height="60" alt="morty-eatin-burg" src="https://64.media.tumblr.com/f14ccc12f2b92adc1b8dd226c11c3b28/b4879cdcd153197a-5f/s100x200/58ff0526676ed3bbdd9c20f681fa854473aaf01a.pnj" />
+
+<br>
+
 <img width="120" height="60" alt="iced-sugar-cookies" src="https://64.media.tumblr.com/fb5bd342bc8789ac0ee5f7943d7bcb50/025e0c59e2aee257-fe/s100x200/18d56b4ee4d3da723c6d8d17a8bec4643d328363.pnj" />
 <img width="120" height="60" alt="got-sparkle-i-do" src="https://64.media.tumblr.com/257db078a1aebc3423f5011483ad2fd5/230dd2f4729b9121-5c/s100x200/18cf04d5c548c606f0ed18d7122a6858e1b27c9c.gifv" />
 <img width="120" height="60" alt="i-support-fluff-n-stuff" src="https://64.media.tumblr.com/55011d1c41020eee4837064e8f946084/230dd2f4729b9121-a7/s100x200/e34e20b31ef345054e04d4b637dd2e5fc8d3b440.gifv" />
+
 <img width="120" height="60" alt="rave-on" src="https://64.media.tumblr.com/04e47c2159f957a8f551a489294e0a0e/230dd2f4729b9121-2d/s100x200/c6722a43b8bb8826858a02fca670c20394d6dbd3.gifv" />
 
 <br>
@@ -41,6 +48,20 @@ im vry forgetful so if i forget who u r mb U_U
 `fandoms` : mlp , rick & morty , tboi , berserk , buddy daddies , ddlc , school-live! , squid-game , mouthwashing, happy tree friends , gachiakuta , sally face & more prob
 
 erm ya thats it ^.^ ill add more ifi feel like it
+
+
+<img width="100" height="100" alt="super-morty-fan" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortySuperMortyFanDown_1.png" />
+<img width="100" height="100" alt="stray-cat-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyCrazyCatDown_1.png" />
+<img width="100" height="100" alt="unicorn-chaser-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyUnicornChaserDown_1.png" />
+<img width="100" height="100" alt="morticia" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyMorticiaDown_1.png" />
+<img width="100" height="100" alt="dog-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyDogDown_1.png" />
+<img width="100" height="100" alt="pancake-mort" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyPancakeDown_1.png" />
+<img width="100" height="100" alt="bunny-morty" src="https://pocketmortys.net/media/com_pocketmortys/assets/MortyRabbitDown_1.png" />
+
+
+<br>
+<br>
+<br>
 
 <img width="700" height="90" alt="cupcakes-twinklin" src="https://64.media.tumblr.com/2236e21d94c82634280847886773c5b9/025e0c59e2aee257-e5/s500x750/a739cbd3d25d3df40f6afca793b17296db976925.gifv" />
 
@@ -77,6 +98,7 @@ erm ya thats it ^.^ ill add more ifi feel like it
 <img width="150" height="20" alt="i-wanna-go-home" src="https://supplies.ju.mp/assets/images/gallery08/9268cf22_original.gif?v=2e2c9a9d" />
 <img width="150" height="20" alt="cringe-but-free" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/a86671af-4c32-481a-82f9-ffef10d457e1/dh04euq-b2ae34a2-db89-44b7-b8ee-6cc7a02976e4.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiIvZi9hODY2NzFhZi00YzMyLTQ4MWEtODJmOS1mZmVmMTBkNDU3ZTEvZGgwNGV1cS1iMmFlMzRhMi1kYjg5LTQ0YjctYjhlZS02Y2M3YTAyOTc2ZTQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.WfVJRsgpD6jLsfiNH_oAY8EBMg-9NRiFrKQannk3onw" />
 <img width="150" height="20" alt="dj-pon3-fan" src="https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/78a6cf48-1f61-406c-bf3b-129d5f7d45ca/dce9wvo-aef80118-25b0-46aa-9d66-5514b04b1238.png?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJpc3MiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwic3ViIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsImF1ZCI6WyJ1cm46c2VydmljZTpmaWxlLmRvd25sb2FkIl0sIm9iaiI6W1t7InBhdGgiOiIvZi83OGE2Y2Y0OC0xZjYxLTQwNmMtYmYzYi0xMjlkNWY3ZDQ1Y2EvZGNlOXd2by1hZWY4MDExOC0yNWIwLTQ2YWEtOWQ2Ni01NTE0YjA0YjEyMzgucG5nIn1dXX0.hdfSZwZ_iH8ENKk6LTnvJMuokAf819fU_PjvOmD56w4" />
+<img width="150" height="20" alt="gay-trans-men-r-epic" src="https://decohoard.carrd.co/assets/images/gallery114/bc6f5d1e.gif?v=e0827b7e" />
 
 <br>
 
