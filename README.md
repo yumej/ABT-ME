@@ -18,7 +18,7 @@
 
 <img width="100" height="100" alt="204" src="https://64.media.tumblr.com/444463d1979d8611b3c6a2e389c8e5cd/dba9224c52af69c4-fa/s100x200/5b16f32a0d6fc124874ddedcd079b85e312ab48f.gifv" />
 
-<img width="15" height="15" alt="clover" src="https://decohoard.carrd.co/assets/images/gallery13/6c9c40fa.png?v=e0827b7e" /> decided to make a lil github bc i have fomo lol
+### <img width="15" height="15" alt="clover" src="https://decohoard.carrd.co/assets/images/gallery13/6c9c40fa.png?v=e0827b7e" /> decided to make a lil github bc i have fomo lol
 
 ⤷ **I AM BLACK** .ᐟ.ᐟ (adding this bc when i say the n-word ppl automatically assume im a white bigot cus apparently black ppl dont play pt or smthing idk)
 
