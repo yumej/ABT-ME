@@ -18,13 +18,13 @@
 
 <img width="100" height="100" alt="204" src="https://64.media.tumblr.com/444463d1979d8611b3c6a2e389c8e5cd/dba9224c52af69c4-fa/s100x200/5b16f32a0d6fc124874ddedcd079b85e312ab48f.gifv" />
 
-decided to make a lil github bc i have fomo lol
+<img width="15" height="15" alt="clover" src="https://decohoard.carrd.co/assets/images/gallery13/6c9c40fa.png?v=e0827b7e" /> decided to make a lil github bc i have fomo lol
 
 ⤷ **I AM BLACK** .ᐟ.ᐟ (adding this bc when i say the n-word ppl automatically assume im a white bigot cus apparently black ppl dont play pt or smthing idk)
 
-not really talkative ! !    but if i see a skin i like ill say something c:
+not really talkative <img width="15" height="15" alt="blush" src="https://decohoard.carrd.co/assets/images/gallery127/35320eb9.gif?v=e0827b7e" /> ! !    but if i see a skin i like ill say something c:
 
-im vry forgetful so if i forget who u r mb U_U
+im vry forgetful so if i forget who u r mb U_U <img width="15" height="15" alt="pawsu" src="https://decohoard.carrd.co/assets/images/gallery135/cce5d634.gif?v=e0827b7e" />
 
 <img width="120" height="60" alt="rick-and-jerry-adventures" src="https://64.media.tumblr.com/5df03ec1f72b48daa0d331919d2b2247/bfbdc7f9f62dec41-48/s100x200/86a2356c390842221f42c88f73a86e02884f1b8a.gifv" />
 <img width="120" height="60" alt="that-was-so-unkawaii-of-you.." src="https://64.media.tumblr.com/16216181d27d78ebd86018989fc02501/09b4c71addff9337-b5/s100x200/290d3e7cdcdd10086ffb3748af5e39d2a7ef27bf.pnj" />
@@ -45,7 +45,7 @@ im vry forgetful so if i forget who u r mb U_U
 <img width="120" height="60" alt="mlg-kitty" src="https://64.media.tumblr.com/1d1fe0e7f259035d04b4f2e3f1ea3d88/05029cdcef8b6d59-21/s250x400/332b4aa56649d707b75287e3a4e23b049738b162.pnj" />
 <img width="120" height="60" alt="ILOVEMEN" src="https://64.media.tumblr.com/4a62447e57af181052938975ffbd1d0d/bfe484ba56a93f86-10/s100x200/700902a6c5a3b95a5372111199a66250a93c4c35.gifv" />
 
-`fandoms` : mlp , rick & morty , tboi , berserk , buddy daddies , ddlc , school-live! , squid-game , mouthwashing, happy tree friends , gachiakuta , sally face & more prob
+`fandoms` : mlp , rick & morty , tboi , berserk , buddy daddies , ddlc , school-live! , squid-game , mouthwashing, happy tree friends , gachiakuta , sally face & more prob <img width="35" height="20" alt="cat-wink" src="https://decohoard.carrd.co/assets/images/gallery120/ea1db9d5.gif?v=e0827b7e" />
 
 erm ya thats it ^.^ ill add more ifi feel like it
 
